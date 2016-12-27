@@ -9,6 +9,6 @@ Paul Arévalo
 Tania Landivar
 
 
-David Valladares
+David Valladarez
 
 UNIVERSIDAD DE CUENCA
